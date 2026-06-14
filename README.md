@@ -7,7 +7,7 @@ A big Thank You to all the supporters who have supported me over PayPal and with
 
 [Discord chat server](https://discord.gg/mAyqAez)
 
-[Google Driver](https://drive.google.com/drive/folders/1bSyEmybxe_C4w9Ytd6aDbE9TzL8dgh0X?usp=sharing)
+[Google Driver](https://drive.google.com/drive/folders/1bSyEmybxe_C4w9Ytd6aDbE9TzL8dgh0X?usp=sharing) https://drive.google.com/drive/folders/1bSyEmybxe_C4w9Ytd6aDbE9TzL8dgh0X?usp=sharing
 
 [AudioSwitch Facebook page](https://www.facebook.com/AudioSwitchSoftware)
 
